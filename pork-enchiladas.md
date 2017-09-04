@@ -1,5 +1,6 @@
 
 # [Pork Tenderloin Enchiladas with Mole Verde](https://patijinich.com/recipe/pork-tenderloin-enchiladas-with-mole-verde/)
+> 6 servings
 
 ### Ingredients
 
